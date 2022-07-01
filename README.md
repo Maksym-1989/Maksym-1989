@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Maksym-1989
+- 👋 Hi, I’m @Maksym
 
 
 <!---
